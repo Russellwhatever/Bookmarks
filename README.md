@@ -20,4 +20,6 @@ monthly readings
 
 [2025-10](https://raindrop.io/russellwhatevery/2510-62604708)
 
-[2025-11(Current)](https://raindrop.io/russellwhatevery/2511-63280576)
+[2025-11](https://raindrop.io/russellwhatevery/2511-63280576)
+
+[2025-12(Current)](https://raindrop.io/russellwhatevery/2512-63867196)
